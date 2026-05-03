@@ -19,7 +19,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> أنا تعبان شوية من الشوق والنار
+> ليلي طويل وفي قلبي أسرار
+> تعالى إلي يا كل الأماني
+> في حضنك أجد كل المعاني
 > ...
 
 [View Full Lyrics ->](./lyrics.txt)
